@@ -1,0 +1,1 @@
+# konoktayak-tech.github.io
